@@ -14,3 +14,5 @@ Although hurt, Bajaja defeats the dragon, but an evil knight takes credit for th
 * decided
 * courageous
 * young
+
+<img src="https://st2.depositphotos.com/1756323/5244/i/950/depositphotos_52446905-stock-photo-fantasy-prince-on-a-horse.jpg"/>
