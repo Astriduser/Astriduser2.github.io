@@ -14,3 +14,6 @@ Although hurt, Bajaja defeats the dragon, but an evil knight takes credit for th
 * decided
 * courageous
 * young
+
+> Take this you stupid three-headed dragon.
+> Do not dare to come back.
